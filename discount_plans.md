@@ -1,0 +1,1 @@
+- 10% off for Loyal Customers using CoffeeHut Wallet
